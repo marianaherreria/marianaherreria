@@ -1,6 +1,5 @@
 ### Hey, I'm Mariana 👋
 
-I'm a liberal arts gal 😵‍💫 intruding github/ swe jobs for money💰and clout. 🤝🤤 
 
 🤸🏻‍♀️ Pronouns: she/her/hers
 
